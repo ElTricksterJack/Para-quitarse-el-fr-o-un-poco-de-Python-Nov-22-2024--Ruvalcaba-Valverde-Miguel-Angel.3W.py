@@ -8,8 +8,8 @@
 ![image](https://github.com/user-attachments/assets/47c0a22e-500b-4529-ab4f-954b007e552c)
 
 # Punto 2
-![image](https://github.com/user-attachments/assets/b7df0672-ba86-423f-b01d-7aabd103a237)
-![image](https://github.com/user-attachments/assets/ee338f4a-caae-49f8-ac78-57dcf1c23c0b)
+![image](https://github.com/user-attachments/assets/94af3b30-8f16-40f7-b1b9-1744a504a6b9)
+![image](https://github.com/user-attachments/assets/5f988062-eb0a-4e43-9a17-7168874a41b4)
 
 # Punto 3
 
