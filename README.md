@@ -24,8 +24,12 @@
 ![image](https://github.com/user-attachments/assets/b28a36ac-4d51-4872-be28-7e60a94d948c)
 
 # Punto 6
+![image](https://github.com/user-attachments/assets/df500f1e-fe85-4af4-b7ce-725b142b281b)
+![image](https://github.com/user-attachments/assets/aa0b77ee-8749-4b1d-aa1f-93625ad37b93)
 
 # Punto 7
+![image](https://github.com/user-attachments/assets/44fe4ae8-aca8-4fd8-80e6-ba06f2d8d22a)
+![image](https://github.com/user-attachments/assets/72c66baa-e1ee-444c-a723-5ff560617ce6)
 
 # Punto 8
 
