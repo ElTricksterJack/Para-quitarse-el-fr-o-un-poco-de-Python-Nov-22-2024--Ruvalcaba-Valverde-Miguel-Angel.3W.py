@@ -51,3 +51,6 @@
 
 Nota: Si que me entretube, jeje
 
+# Punto 4-MODE
+![image](https://github.com/user-attachments/assets/db86f10f-eb37-42d6-bbd3-a5cdcdacdcc7)
+![image](https://github.com/user-attachments/assets/54a73daf-31da-45bb-a04c-50cf29bbfa23)
