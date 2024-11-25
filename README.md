@@ -32,7 +32,16 @@
 ![image](https://github.com/user-attachments/assets/72c66baa-e1ee-444c-a723-5ff560617ce6)
 
 # Punto 8
+![image](https://github.com/user-attachments/assets/81905838-17e5-4b78-9db3-5fd6233d0a00)
+![image](https://github.com/user-attachments/assets/675ccb3f-6d20-46a4-8d81-6ac406373884)
 
 # Punto 9
+![image](https://github.com/user-attachments/assets/4382c2c1-fbe9-445c-becc-5b24f96d0e0f)
+![image](https://github.com/user-attachments/assets/5df9239d-91d4-46f6-b67f-c336ee8180a7)
 
 # Punto 10
+![image](https://github.com/user-attachments/assets/baeb45df-6b54-4c70-9a2e-831a7eb4e702)
+![image](https://github.com/user-attachments/assets/7d8902c1-7c8d-4e94-bcb7-a2d74569c2c4)
+![image](https://github.com/user-attachments/assets/5a90ed74-957e-425a-82b9-09cd7ae37995)
+![image](https://github.com/user-attachments/assets/c292a205-c0a7-41be-8734-40283bc86cfb)
+![image](https://github.com/user-attachments/assets/b1012e01-4283-4e58-8d15-23032296f827)
